@@ -1,5 +1,30 @@
 # all resources 
 
+## twitter 
+
+@0x牛牛
+@0xWizard
+@梭教授说
+@红神.eth
+
+
+Crypto Chuanzhang
+@chuanzhang55
+今天是一个重要的日子
+是我踏入币圈8年纪念日
+八年前的今天我还在做3M
+由此做桥接当时我买入了第一枚莱特银 #ltc 
+也是第一次进入了币圈并且坚持的活了下来
+悟透了“耐心比黄金重要，信心又比耐心重要”的道理
+币圈确实改变了我的所有生活轨迹，在八年之前，我还是一位保险推销员😄
+8年后比特币被etf申请通过，我是被承认的持有比特币的交易员
+是金钱的欲望和对这个圈子的热爱让我走到了今天
+是币圈让我在现实里面算是挥金如土
+我要感恩所有
+下一个八年，一起同行
+
+
+[建议收藏｜Web3 值得关注的 KOL 与 VC 机构（一）](https://foresightnews.pro/article/detail/35173)
 
 ## youtube video 
 
@@ -28,5 +53,4 @@ Velo邀请码：TENG55870C01
 电报群：https://t.me/DaddyEarnOA
 知乎：“奶爸老胡”  https://www.zhihu.com/people/vinceFox28
 个人博客：https://daddyearn.com
-
 
